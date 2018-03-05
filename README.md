@@ -1,7 +1,7 @@
 # TesteAula
 Conflito
 
-alteraçao
+alteraÃ§ao
 
 teste erro 
 qowieejo
@@ -12,8 +12,20 @@ qowieejo
 
 (\_/)
 
-( •,•)
+( â€¢,â€¢)
 
 (")_(")
+
+
+
+
+
+
+
+
+
+
+
+
 
 
