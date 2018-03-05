@@ -7,4 +7,13 @@ teste erro
 qowieejo
 
 
+
 420 mlgblazeit
+
+(\_/)
+
+( •,•)
+
+(")_(")
+
+
