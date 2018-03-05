@@ -5,3 +5,10 @@ alteraçao
 
 teste erro 
 qowieejo
+
+(\_/)
+
+( •,•)
+
+(")_(")
+
